@@ -20,4 +20,10 @@ Yeah, Man. You got a big day tomorrow. You should get some sleep.
 
 _Pixy in her bed with her phone glowing on her face._
 
+Caption
+
+2 hours later.
+
+PIXY
+
 I'm a responsible Adult!
