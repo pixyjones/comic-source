@@ -1,5 +1,11 @@
 # Booth Babes
 
+In the office of the to-still-be-named company that Pixy works for. In this comic:
+
+* Pixy Jones
+* Penelope
+* Jerry
+
 **Panel 1**
 
 > Penelope pops her head over the cubicle where Pixy is working.
@@ -14,11 +20,11 @@ What's that?
 
 **Panel 2**
 
-> Wide shot of Pixy and Penelope talking with exageration.
+> Wide shot of Pixy and Penelope talking with exaggeration.
 
 PENELOPE
 
-Jerry is coiming with us!
+Jerry is coming with us!
 
 PIXY
 
@@ -34,7 +40,7 @@ Yo! What's up ladies? You girls all ready to get booth babed up for next week?
 
 **Panel 4**
 
-> Similar to Panel 3 but Jerry is suddenly san and looking down.
+> Similar to Panel 3 but Jerry is suddenly sad and looking down.
 
 JERRY (Sad)
 
